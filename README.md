@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @VaishnaviMokashi2308
 - 👀 I’m interested in the field of Data Science and Machine Learning.
 - 🌱 I have 2 years of working experience in an IT industry as an associate consultant.
-- 📫 Reach out to me via LinkedIn - https://www.linkedin.com/in/vaishnavi-mokashi-487758192
+- 📫 Reach out to me via LinkedIn - https://www.linkedin.com/in/vaishnavimokashi
